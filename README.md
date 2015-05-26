@@ -1,0 +1,2 @@
+# Become-a-Reseller
+Become a Reseller Agents - Distributor for Mobile Dialer/PC2fone Cards Selling 1.	VSR level 1-2-3 available for reseller 2.	Top 3 mobile dialers (Itel, Mosip, Plus) 3.	Main destinations PAK, India, BD, Nepal, Egypt, Srilanka 4.	All Dialers working in KSA, Oman, UAE, Kuwait, Qatar 5.	Payment option available in KSA, Oman, UAE     for more details please visit our website www.apollocall.com    or send an email to rifat@apollocall.com  Thanks,
